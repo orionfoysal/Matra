@@ -1,1 +1,1 @@
-Eat to Live, Don't Live to Eat
+Bangla OCR. On progress.
